@@ -2,7 +2,7 @@
 ## 视频 
 ### 近代史
 "中华人民共和国史 建国十年” ———— 高华 <br/>
-　　[上篇](https://youtu.be/Ld58J51sXPQ)　　
+　 　[上篇](https://youtu.be/Ld58J51sXPQ)　　
 　　[中篇](https://youtu.be/7AUNBkq1Uto)　　
 　　[下篇](https://youtu.be/7HDvCM0e7TQ) 
         
